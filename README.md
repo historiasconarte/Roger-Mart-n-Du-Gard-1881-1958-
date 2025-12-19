@@ -1,3 +1,3 @@
-  # Roger-Mart-n-Du-Gard-1881-1958-
-  Director cinematográfico ruso. 
-Su primer largometraje fue Huelga (1924). En El acorazado Potemkin (1925), al igual que en sus demás películas mudas, representa acciones de masas, en vez de individuales. Experimentó con la expansión del tiempo en momentos culminantes (como en la secuencia de la Escalera de Odesa).
+  # Roger-Martín-Du-Gard-1881-1958-
+Escritor francés.
+Considerado una de las voces más destacadas de la literatura francesa contemporánea, es autor de una notable producción narrativa en la que, con una prosa adusta y concisa, analiza la crisis de los valores morales de la sociedad burguesa y aborda los conflictos entre la fe y la razón.
